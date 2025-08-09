@@ -1,5 +1,1 @@
-# Teddy Mcadams | Creative Designer
-Passionate about the intersection of art and technology  
-Making every project brim with inspiration ✨  
-
-#creative-design #art-and-technology #inspiration
+My name is Teddy Mcadams, and I currently live and work in Taiwan. I cherish spending time with my wife and daughter. Professionally, I work as a software UI creative designer and code engineer.
